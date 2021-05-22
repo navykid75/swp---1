@@ -1,5 +1,3 @@
-
-
-20212951	MunKyeong Kang 
+20212951-MunKyeong Kang 
 
 Kookmin.univ
