@@ -1,3 +1,3 @@
 20212951MunKyeong Kang 
 
-GKookmin.univ
+GKookmin.univ School computer
